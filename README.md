@@ -1,1 +1,1 @@
-# hado dyal hosam
+# those are for some one
